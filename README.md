@@ -33,3 +33,11 @@ Kebun binatang dengan luas 10 hektar ini menjadi tempat wisata di Pekanbaru yang
 Selain mengamati koleksi binatang, ada arena bermain anak-anak seperti papan seluncur, ayunan dan juga kolam pancing dan kolam renang anak. Jika beruntung, Anda juga bisa naik gajah dengan biaya 10.000 Rupiah per 10 menit.
 
 Kebun Binatang Sang Kulim bisa ditempuh dalam waktu 30 menit dari pusat kota Pekanbaru. Untuk bisa masuk, Anda diharuskan membayar sebesar 20.000 Rupiah untuk pengunjung dewasa dan 10.000 Rupiah untuk pengunjung anak-anak.
+
+#Taman Rekreasi Alam Mayang
+
+Tempat wisata ini menawarkan wahana rekreasi keluarga di alam terbuka. Taman Rekreasi Alam Mayang dikelilingi oleh perbukitan, udara sekitarnya sejuk sehingga cocok digunakan untuk bersantai bersama keluarga. Dari sini, Anda juga bisa melihat Jembatan Leighton yang melintasi Sungai Siak.
+
+Di sini, terdapat tiga buah kolam pancing yang bisa digunakan untuk memuaskan kegemaran memancing Anda. Tak jarang tempat wisata di Pekanbaru ini dijadikan lokasi pertandingan memancing yang diadakan pemerintah setempat. Selain memancing, Anda bisa mencoba flying fox dan berbagai kegiatan outbound lainnya. Untuk kegiatan yang lebih santai, ada sepeda air dan bola air raksasa yang bisa Anda sewa.
+
+Jika membawa anak-anak, ada arena mandi bola, taman bermain anak dan studio film 3D di tempat wisata seluas 24 hektar ini. Ada juga topeng monyet dan pertunjukan sulap badut yang menghibur Anda dan keluarga.
