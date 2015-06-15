@@ -25,3 +25,11 @@ Istana dibangun pada tahun 1889 oleh Sultan Syarif Hasyim Abdul Jalil Syaifuddin
 Di lantai dua yang dahulu merupakan kamar sultan dan kamar tamu kerajaan ini sekarang berisi koleksi senjata pusaka milik sultan. Selain itu ada lukisan Napoleon Bonaparte yang dikirim langsung dari Perancis. Banyaknya benda koleksi sultan yang berasal dari Eropa ini membuktikan bahwa pada zaman dahulu, Kesultanan Siak telah menjalin kerjasama internasional.
 
 Untuk bisa melihat koleksi di sini, Anda diharuskan membayar tiket masuk sebesar 3.000 Rupiah. Tak hanya itu, untuk bisa masuk ke bangunan utama, Anda juga harus melepaskan alas kaki karena dikhawatirkan akan merusak lantai granit istana.
+
+#Kebun Binatang Sang Kulim
+
+Kebun binatang dengan luas 10 hektar ini menjadi tempat wisata di Pekanbaru yang banyak dikunjungi keluarga di akhir pekan. Kebun Binatang Sang Kulim memiliki banyak binatang yang bisa dikenalkan pada anak-anak mulai dari monyet, burung, ular, landak dan masih banyak lagi.
+
+Selain mengamati koleksi binatang, ada arena bermain anak-anak seperti papan seluncur, ayunan dan juga kolam pancing dan kolam renang anak. Jika beruntung, Anda juga bisa naik gajah dengan biaya 10.000 Rupiah per 10 menit.
+
+Kebun Binatang Sang Kulim bisa ditempuh dalam waktu 30 menit dari pusat kota Pekanbaru. Untuk bisa masuk, Anda diharuskan membayar sebesar 20.000 Rupiah untuk pengunjung dewasa dan 10.000 Rupiah untuk pengunjung anak-anak.
