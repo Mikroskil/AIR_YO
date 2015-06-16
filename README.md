@@ -71,4 +71,27 @@ Ada tiga rute yang bisa dilaui untuk samapi ke kawasan Kawah Putih Tinggi Raja
     2.Masihul-Nagori Dolok-Dolok Tinggi Raja
     3.Medan-Lubuk Pakam-Galang-Bangun Purba-Dolok Tinggi Raja
 
+#Pantai Cermin
+
 Semua mempunyai jarak tempuh yang sama yaitu 80 – 90 km denga waktu 3-4 jam dari Kota Medan.
+
+Pantai Cermin - Pantai yang berpasir putih nan elok. Pantai Cermin adalah sebuah kecamatan di Kabupaten Serdang Bedagai, Sumatera Utara, Indonesia.
+
+Pantai Cermin juga merupakan salah satu objek wisata di Kabupaten Sergai dengan pemandangan dan pantainya yang indah.
+
+
+Setiap musim liburan datang, pasti ramai didatangi oleh wisatawan. Kebanyakan dari wisatawan lokal, dan membawa anak-anak untuk bermain di pantai yang berpasir putih nan elok. Pantai Cermin memang asik untuk liburan wisata keluarga yang murah meriah bagi masyarakat Medan Sumatera Utara.
+
+Dengan harga tiket masuk, membayar Rp. 5.000 per orang kita sudah dapat menikmati wisata pantai Cermin, dari pintu masuk anda akan disambut dengan hamparan pasir putih dan angin pantai yang bertiup kencang.
+
+Pantai Cermin,Serdang Berdagai bisa ditempuh selama 1,5 jam dari Bandara Polonia Medan Sumatera Utara. Bandara Polonia adalah bandar udara internasional yang ada di kota Medan Sumatera Utara.
+
+
+Pantai Cermin, dinamakan cermin karena kalau pada siang hari dan matahari terik pasir pantai dapat memantulkan cahaya kecil-kecil dari matahari seperti cermin oleh karena itu pantai ini diberi nama pantai cermin. Banyak wisata air yang dapat dilakukan di pantai ini, seperti banana boat, speed boat, sampai berenang di pinggir pantai. Untuk banana boat pengunjung dapat membayar sejumlah Rp, 30.000 per orang.
+
+Tak hanya itu disepanjang pinggir pantai juga terdapat gubuk-gubuk yang terbuat dari rotan dan bambu untuk memanjakan wisatawan agar bisa bersantai, mengobrol, memandang pantai, bahkan melepas penat.
+
+Tempat ini juga mempunyai Water Park dan area bermain, pengunjung dapat membayar Rp. 80.000. Keluarga yang datang bersama anak-anak bisa di sana bisa membahagiakan anak-anak karena disediakan tempat bermain untuk anak-anak.
+
+
+Sungguh menyenangkan liburan di pantai cermin. Bagaimana dengan anda? Anda tertarik... Datang dan nikmati keindahan Pantai Cermin, pantai yang berpasir putih nan elok. 
