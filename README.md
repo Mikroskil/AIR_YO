@@ -1,4 +1,4 @@
-#Objek Wisata Pekanbaru
+#Objek Wisata di Indonesia
 
 #Riau Fantasi
  
@@ -113,3 +113,18 @@ Pada tahun 90-an, cerita Girsang,kaum muda-mudi selalu ramai mengunjungi lokasi 
 Ketika pewarta Suara Komunitas mewawancarai Pak Saragih, warga Dolok Manahan mengatakan, Orang tidak mau lagi datang ke Tarakni Onggang karena tidak terawatnya jalan menuju lokasi air terjun Tarakni Onggang.
 
 Menurut Pak Saragih, Pihaknya pernah mengajukan permohonan kepada Pemkab Simalungun agar air terjun Tarakni Onggang dibangun dan dibenahi jadi daerah tujuan wisata, karena lokasinya yang cukup indah dan strategis, disana kita bisa melihat banyak kera dan monyet, burung onggang (enggang) dan bermacam-macam burung lainnya, disana juga banyak terdapat ikan jurung bagi yang hobi mancing. Tetapi sampai sekarang tidak ada tanggapan dari pihak Pemkab Simalungun.
+
+#Wisata Puncak
+
+Tanjung Unta adalah satu dari sekian banyak tempat wisata alam di Sumatera Utara dengan keindahan yang sangat mempesona dan memanjakan mata. 
+Hanya dengan memandangnya di foto saja sudah bisa membayangkan bagaimana indahnya Tanjung Unta dan serasa ingin mengunjunginya sesegera mungkin. 
+Banyak sekali kegiatan yang bisa dilakukan jika berlibur Tanjung Unta. Mulai dari berkemah, memancing ikan, water ski, atau juga berperahu. 
+Untuk mencapai Tanjung Unta anda dapat menggunakan transportasi darat moda roda dua maupun roda empat. Tak perlu khawatir, banyak transportasi umum menuju tempat wisata ini. 
+Jarak dari kota Medan menuju Tanjung Unta sekitar 109 km dan bila dari kota Pematang Siantar anda hanya perlu menempuh jarak 61 km. 
+Melalui Rute Medan – Pematang Siantar – Tanjung Unta.
+
+Puncak Simarjarunjung adalah tempat wisata yang indah panoramanya, 
+dilihat dari puncak bukit bisa melihat pemandangan indah dibawahnya, 
+tapi pemandangan bagus tersebut bisa dinikmati jika cuaca sedang bagus dan anda juga dapat melihat daerah sekitar Danau Toba dari atas puncak bukit ini sehingga membuat anda terhiptonis dengan keindahannya. 
+Jika anda ingin sekali Ke Puncak Simarjarunjung maka anda harus mempersiapkan jaket yang tebal karena kawasan di bukit bertiup sangat kencang. Anda juga akan melewati pemandangan hijau yang dihasilkan perkebunan teh itu. 
+Tempat itu juga sering dipergunakan untuk Camping oleh para pemuda yang sangat pencinta alam ini. Puncak Simarjarunjung berlokasi di Si Sapu Angin, Sumatera Utara, Indonesia.
