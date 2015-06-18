@@ -154,3 +154,25 @@ Inilah air terjun tertinggi di Indonesia, berketinggian 250 meter dan berada di 
 Dari kejauhan, air terjun ini terlihat seperti curahan air rakasasa dengan suara dentuman air yang terdengar dari kejauhan. Air terjun ini bersumber dari Sungai Asahan yang aliran airnya bermula dari Danau Toba.
 Aliran sungai dari air terjun Sigura-Gura ini kerapkali menjadi tempat kompetisi rafting di Indonesia dan dunia dengan aliran air yang deras dan berkontur bebatuan. Beberapa kegiatan populer selain rafting, tentu saja berkemah di areal air terjun.
 Selain itu, berenang di sungai dekat air terjun tersebut adalah kegiatan yang hampir selalu dilakukan banyak wisatawan di samping berfoto dengan latar belakang air terjun dan bentang alamnya yang mempesona.
+
+
+#Wisata Pantai Lagundri dan Pantai Sorake
+
+Pantai Lagundri dan Pantai Sorake adalah pantai yang masih berada dalam 1 garis pantai di Kecamatan Teluk Dalam, Nias Selatan, Sumatera Utara. 
+Kedua pantai ini sangatlah terkenal di dunia karena ombaknya yang besar dan sangat disukai para peselancar dari berbagai belahan dunia. Bila anda tidak dapat berselancar, tidak perlu kuatir karena di kedua pantai ini banyak terdapat pelatih selancar. 
+Selain itu ada puluhan penginapan di sepanjang pantai sehingga anda tidak perlu kuatir kesulitan mendapat penginapan.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
