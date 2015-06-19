@@ -1,21 +1,9 @@
-doctype html
-html
-  head
-    meta(charset='utf-8')
-    meta(name='viewport', content='width=device-width, initial-scale=1, maximum-scale=1')
-    title Hello World
-
-    link(rel='stylesheet', type='text/css', href='build/build.css')
-
-  body
-
-    body(bgcolor=blue)
+ body(bgcolor=blue)
 
     article
 
       section
-        h1 Tugas Tkppl
-        h2 Kelompok: AIR_YO
+        h1 Tugas Tkkpl
         h3 Disusun Oleh:
         h4 1.Anjas Kurniawn Rambe (131111441)
         h4 2.Idral Zuanda.AR(131112071)
@@ -23,7 +11,7 @@ html
         h4 4.Yogi Arista BatuBara(131112403)
         
       section
-        h2 Objek Wisata di Indonesia
+        h2 Lokasi Wisata
         ul
           li Wisata Riau Fantasi
           li Wisata Gunung Sibayak
@@ -47,7 +35,8 @@ html
 
       section(data-bespoke-hash='named-route')
         h2 Wisata Riau Fantasi
-        h3 Riau Fantasi memiliki dua arena wahana kering dan basah. 
+        h3 Letak lokasi Pekanbaru
+        h4 Riau Fantasi memiliki dua arena wahana kering dan basah. 
         Di wahana permainan air, ada beberapa jenis kolam 
         dan papan seluncur air misalnya saja Adventure Pool. 
         Di kolam ini terdapat beberapa menara yang dihubungkan dengan jembatan goyang.
@@ -72,7 +61,7 @@ html
         
       section
         
-        h2 Wisata Air Terjun Tara Ni Onggang
+        h2 Wisata air terjun
         ul
             li Letak lokasi : Kabupaten simalungun
             li banyak di kunjungi
@@ -85,7 +74,5 @@ html
           li
             strong THANK YOU 
            
-
-    script(src='build/build.js')
 
     script(src='build/build.js')

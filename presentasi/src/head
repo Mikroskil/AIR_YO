@@ -1,0 +1,11 @@
+ head
+    meta(charset='utf-8')
+    meta(name='viewport', content='width=device-width, initial-scale=1, maximum-scale=1')
+    title Kelompok AIR_YO
+
+    link(rel='stylesheet', type='text/css', href='build/build.css')
+    link(rel='stylesheet', type='text/css', href='images/style.css')
+    
+    style(type='text/css').
+  body{
+  background-image:url('images/Danau.jpeg')
